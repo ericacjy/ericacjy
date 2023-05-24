@@ -1,5 +1,5 @@
 @ericacjy
 
-chem eng. | curtin 2026'
+chem eng @ curtin 2026'
 
-can't code to save her life. 
+could not code to save her life. 
